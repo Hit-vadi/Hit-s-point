@@ -1,0 +1,2 @@
+# Hit-s-point
+Hit
